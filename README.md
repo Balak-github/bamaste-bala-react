@@ -1,1 +1,1 @@
-# namaste Bala React 🚀 :..
+# Namaste-Bala-React 🚀 :..
